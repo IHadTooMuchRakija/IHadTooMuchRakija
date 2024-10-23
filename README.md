@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @IHadTooMuchRakija
-- 👀 I’m interested in ... assault, war crimes, arson, mustard gas, nuclear weaponry, alcoholism
+- 👀 I’m interested in ... assault, war crimes, arson, mustard gas, nuclear weaponry, alcohol, chlorine gas
 - 🌱 I’m currently learning ... how to make a nuke
 - 💞️ I’m looking to collaborate on ... committing war crimes
 - 📫 How to reach me ... give me a bottle of alcohol and i will fight for you
-- 😄 Pronouns: ... [yes/no]
+- 😄 Pronouns: ... [fuck/off]
 - ⚡ Fun fact: ... i kicked someone in the leg with an ice skate
 
 <!---
